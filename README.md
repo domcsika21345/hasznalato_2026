@@ -1,0 +1,1 @@
+# hasznalato_2026
